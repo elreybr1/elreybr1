@@ -1,8 +1,3 @@
-🌹 - Gabriel Antonio Fernandes 
-🌎 - 2003 
-📌 - Piraquara 
-💫 - 19y 
-👨🏻‍💻 - Formado em: Técnico Desenvolvimento de Sistemas, Assistente Administrativo Senai
 
 APRESENTAÇÃO
 No ano de 2019 a 2020 atuei como Jovem Aprendiz nos Correios, no qual exerci a atividade de Assistente Administrativo, e tive a capacitação através de um curso técnico. 
