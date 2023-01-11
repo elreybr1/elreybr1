@@ -8,3 +8,6 @@ Tenho habilidade com comunicação, sou uma pessoa extrovertida, dedicada, tenho
 
 Contado: Gabriel.a.fernandes12@outlook.com 
 Telefone: (41) 98463-8938
+
+[Instagram](https://www.instagram.com/elreybr1/)
+[Linkedin](https://www.linkedin.com/in/gabriel-antonio-fernandes-9155b225a/)
