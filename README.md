@@ -6,7 +6,7 @@ No ano de 2021 a 2022 fiz formação em Técnico Desenvolvimento de Sistemas Sen
 Acabei de entrar na Federal, estou matriculado em Gestão da Tecnologia da Informação - Noturno
 Tenho habilidade com comunicação, sou uma pessoa extrovertida, dedicada, tenho boa interação com as pessoas, facilidade com o uso da rede social e principalmente com jogos eletrônicos. Sou focado, engajado no cumprimento das atividades, busco conhecimento e soluções em prol do meu desenvolvimento. 
 
-Contado: Gabriel.a.fernandes12@outlook.com 
+Contado: Bielcf.gabriel@gmail.com
 Telefone: (41) 98463-8938
 
 [Instagram](https://www.instagram.com/elreybr1/)
